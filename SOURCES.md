@@ -1,4 +1,4 @@
-Images from the Yakama Indian Reservation: Most of my images are my own, or taken by my boyfriend Thomas Alexander, and then shared with me. 
+Images from the Yakama Indian Reservation: Most of my images are my own, or taken by my boyfriend Thomas Alexander, or taken by Rachel Maxfield on the Yakama Indian Reservation, and then shared with me. 
 
 
 I have decided to not use this layer as the background, but in case I do: 
